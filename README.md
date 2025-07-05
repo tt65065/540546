@@ -19,4 +19,4 @@
 别忘了将本站加入书签，每天上来看看，可能就有你期待已久的新作更新。这里，是值得你长期收藏的日本AV免费在线观看入口，内容更新快、体验好、完全免费，是老司机们口口相传的看片首选地。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/tt65065/540546 ）</span>
